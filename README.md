@@ -1,4 +1,4 @@
-# Legal-Notice-for-Cleanmax-App-Cleaner-Booster.github.io
+# Legal-Notice
 
 Legal Notice
 
